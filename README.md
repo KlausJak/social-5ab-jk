@@ -32,4 +32,4 @@ diese Erfahrung konnte ich persönlich noch nicht machen, ich bin auch relativ u
 
 ### - https://www.bild.de/leben-wissen/studie-beweist-social-media-frisst-knapp-sechs-jahre-lebenszeit-66ed4889a19e903256fc5e4f
 
-### - 
+### - https://kurier.at/politik/ausland/australien-sydney-anthony-albanese-social-media/402946484
